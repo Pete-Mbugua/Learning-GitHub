@@ -12,6 +12,8 @@ So,
 When challenging days filled with unexpected responsibilities come your way,
 Always hold onto your belief in yourself and your vision for your life.
 Continuously steer your life in the right direction,
-Even during the difficult times.
+Even during difficult times.
 It may not always be easy,
 But it is during these challenges that you discover a stronger sense of your own identity.
+
+Maintain faith in yourself.
